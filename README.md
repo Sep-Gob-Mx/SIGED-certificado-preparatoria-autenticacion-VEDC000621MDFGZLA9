@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VEDC000621MDFGZLA9
+VEDC000621MDFGZLA9
